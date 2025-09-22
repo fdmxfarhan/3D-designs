@@ -1,0 +1,4 @@
+Sanding Tool by Perinski on Thingiverse: https://www.thingiverse.com/thing:3159240
+
+Summary:
+Sanding Tool See the video for details:  Parts links below: Foam Rubber  TopZeal Filament ABS  AB Glue Epoxy  Glue E8000  Glue T9000  Super Glue 502  Sealant Glue Links to used tools: NOGA deburring tool and Blades  Clamp medical pliers  Mini Wireless Grinder  Polishers Buffers Abrasive Required files: sanding-tol.zip My new machine:          My favorites:  Thank you for every tip or donation,it means great recognition for me and helps a lot to keep going!    My some other things:  3D Printer • Accessories                                         Electronics Tools • Accessories                                                  Hand Tools                                Power Tools • Accessories                                              Photo Video Accessories            Gadgets • Accessories     Other              
